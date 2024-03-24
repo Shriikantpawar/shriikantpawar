@@ -1,7 +1,7 @@
  Hi there 👋
  
  
- I'm Shrikant Pawar passionate devloper .
+ I'm Shrikant Pawar passionate devloper . I absolutely love cloud technology. It's something I'm deeply passionate about and really excited to work with
 
  
 🔭 I'm currently working on MERN STACK .
