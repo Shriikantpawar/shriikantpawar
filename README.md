@@ -11,7 +11,6 @@
 
  📫 reach me at : shrikantpawar.me@gmail.com
 
-![image](https://github.com/shriikantpawar/shriikantpawar/assets/115066024/14be0645-e2b6-496d-a3f9-e666f119a1d2) 
-![image](https://github.com/shriikantpawar/shriikantpawar/assets/115066024/4b06986d-acaa-4e05-bc12-b50fe2b941ec)
+![image](https://github.com/shriikantpawar/shriikantpawar/assets/115066024/1f511b17-f1cc-4c50-a54a-30115d2dad23)
 
 
